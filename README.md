@@ -27,4 +27,4 @@
 5. 总结
 获取“日本AV无偿”资源时，务必选择防护网站，注意内容更新内容，使用筛选功能提升体验，警惕恶意广告，才能确保娱乐与防护兼得。
 
-<span style="display:none;">[Canonical link](  ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/xl070925/12426 ）</span>
